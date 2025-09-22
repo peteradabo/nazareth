@@ -1,2 +1,2 @@
 # nazareth
-Methodist Church 
+Methodist School 
